@@ -1,2 +1,0 @@
-# ALHAFREETV
-FreeTvaha67
